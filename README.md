@@ -5,3 +5,5 @@ https://sinyalee.com/%E4%BA%BA%E5%A6%BB%E7%BA%A6%E4%BC%9A%E6%8C%87%E5%8D%97v1.4.
 https://xqdoc.imedao.com/1631a7c34c91b92b3fe2d1ab.pdf
 股票投资智慧（根据现有人类认知整理）
 https://xqdoc.imedao.com/1631a7c34c91b92b3fe2d1ab.pdf
+有机化学
+https://hxsy.qust.edu.cn/fj/youjihecheng.pdf
